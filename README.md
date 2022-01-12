@@ -1,0 +1,1 @@
+# Kasir-minimarket-self-service
